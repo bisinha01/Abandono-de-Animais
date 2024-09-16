@@ -1,1 +1,2 @@
 # Abandono-de-Animais
+O meu grupo, junto com a minha amiga, Kelly,acha que este tema é muito recorrente na nossa cidade, e como na cidade, também no bairro dela, Presidente Vargas, Laranjeiras do Sul. Todas as esquinas e lugares é visível o abandono de não só cachorros, como gatos no bairro. Algumas formas que nós pensamos em ajudar isso, seria reportando e transportando tais animais para abrigos e canis, e fazer campanhas de adoção, pois de tantos animais na rua as pessoas continuam comprando, e o que está na rua pode ter um abrigo melhor com bastante cuidado e amor.
